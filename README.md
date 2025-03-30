@@ -12,4 +12,4 @@ De momento solamente me especializo en estas 2 cosas, aparte de tener tambien mi
 ## Contactos
 
 - [**Gunslol**](https://strgfe.xyz/) *(Centro de Enlaces)*
-- [**Discord**](https://discord.strgfe.xyz/)
+- [**Discord**](https://discord.strgfe.xyz/) *(Discord Oficial)*
